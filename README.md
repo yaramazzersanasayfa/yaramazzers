@@ -18,18 +18,17 @@ Aşağıdaki bağlantılar, projenin yönlendirdiği NSFW içerik kaynaklarıdı
 
 | Kategori | Açıklama | 
 |---------|----------|
-| [Ana Sayfa](https://turkpornovideolari.com) | Türk porno videoları için ana sayfa | ![Ana Sayfa](https://turkpornovideolari.com/wp-content/uploads/2023/12/logo.png) |
-| [Sex Hikayeleri](https://turkpornovideolari.com/sex-hikayeleri) | Türkçe erotik hikayeler ve fantastik içerikler | ![Hikaye](https://turkpornovideolari.com/wp-content/uploads/2023/12/hikaye.jpg) |
-| [Uzun Videolar](https://turkpornovideolari.com/uzunvideolar) | HD ve uzun metraj porno videoları | ![Uzun Video](https://turkpornovideolari.com/wp-content/uploads/2023/12/uzunporno.jpg) |
-| [Deneme Bonusu Veren Siteler](https://turkpornovideolari.com/deneme-bonusu-verenler) | Bahis + erotik içerik kombinasyonu | ![Bonus](https://turkpornovideolari.com/wp-content/uploads/2023/12/bonus.jpg) |
-| [İletişim](https://turkpornovideolari.com/contact) | Geri bildirim ve iletişim formu | ![İletişim](https://turkpornovideolari.com/wp-content/uploads/2023/12/iletisim.png) |
-| [Porno Ara](https://turkpornovideolari.com/porno-ara) | İçerik arama motoru | ![Ara](https://turkpornovideolari.com/wp-content/uploads/2023/12/search.jpg) |
-| [Beğendiğiniz Pornolar](https://turkpornovideolari.com/begendiginiz-pornolar) | Kullanıcı favorileri | ![Favori](https://turkpornovideolari.com/wp-content/uploads/2023/12/favori.jpg) |
-| [Foto Pornolar](https://turkpornovideolari.com/foto-pornolar) | Erotik foto galeri | ![Foto](https://turkpornovideolari.com/wp-content/uploads/2023/12/foto.jpg) |
-| [Video Pornolar](https://turkpornovideolari.com/video-pornolar) | Güncel porno videoları | ![Video](https://turkpornovideolari.com/wp-content/uploads/2023/12/video.jpg) |
-| [Porno, Türk Porno,Sex Hikayeleri, İfşa, Türk İfşa) | Güncel porno videoları | ![Video](https://turkpornovideolari.com/wp-content/uploads/2023/12/video.jpg) |
+| [Ana Sayfa](https://turkpornovideolari.com) | Türk porno videoları için ana sayfa |
+| [Sex Hikayeleri](https://turkpornovideolari.com/sex-hikayeleri) | Türkçe erotik hikayeler ve fantastik içerikler |
+| [Uzun Videolar](https://turkpornovideolari.com/uzunvideolar) | HD ve uzun metraj porno videoları |
+| [Deneme Bonusu Veren Siteler](https://turkpornovideolari.com/deneme-bonusu-verenler) |
+| [İletişim](https://turkpornovideolari.com/contact) | Geri bildirim ve iletişim formu |
+| [Porno Ara](https://turkpornovideolari.com/porno-ara) | İçerik arama motoru |
+| [Beğendiğiniz Pornolar](https://turkpornovideolari.com/begendiginiz-pornolar) |
+| [Foto Pornolar](https://turkpornovideolari.com/foto-pornolar) | Erotik foto galeri |
+| [Video Pornolar](https://turkpornovideolari.com/video-pornolar) | Güncel porno videoları |
+| [Porno, Türk Porno,Sex Hikayeleri, İfşa, Türk İfşa) | Güncel porno videoları |
 ---
-
 ## 🧩 Özellikler
 
 - Türkçe erotik içeriklere tek merkezden erişim
