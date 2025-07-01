@@ -16,8 +16,8 @@ Bu proje, doğrudan içerik barındırmaz, sadece üçüncü parti sitelere yön
 
 Aşağıdaki bağlantılar, projenin yönlendirdiği NSFW içerik kaynaklarıdır:
 
-| Kategori | Açıklama | Görsel |
-|---------|----------|--------|
+| Kategori | Açıklama | 
+|---------|----------|
 | [Ana Sayfa](https://turkpornovideolari.com) | Türk porno videoları için ana sayfa | ![Ana Sayfa](https://turkpornovideolari.com/wp-content/uploads/2023/12/logo.png) |
 | [Sex Hikayeleri](https://turkpornovideolari.com/sex-hikayeleri) | Türkçe erotik hikayeler ve fantastik içerikler | ![Hikaye](https://turkpornovideolari.com/wp-content/uploads/2023/12/hikaye.jpg) |
 | [Uzun Videolar](https://turkpornovideolari.com/uzunvideolar) | HD ve uzun metraj porno videoları | ![Uzun Video](https://turkpornovideolari.com/wp-content/uploads/2023/12/uzunporno.jpg) |
