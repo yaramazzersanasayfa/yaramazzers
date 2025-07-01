@@ -24,7 +24,7 @@ Aşağıdaki bağlantılar, projenin yönlendirdiği NSFW içerik kaynaklarıdı
 | [Deneme Bonusu Veren Siteler](https://turkpornovideolari.com/deneme-bonusu-verenler) | Erotik içerik kombinasyonu | 
 | [İletişim](https://turkpornovideolari.com/contact) | Geri bildirim ve iletişim formu |
 | [Porno Ara](https://turkpornovideolari.com/porno-ara) | İçerik arama motoru |
-| [Beğendiğiniz Pornolar](https://turkpornovideolari.com/begendiginiz-pornolar) | 
+| [Beğendiğiniz Pornolar](https://turkpornovideolari.com/begendiginiz-pornolar) | Beğendiğiniz Pornolar |
 | [Foto Pornolar](https://turkpornovideolari.com/foto-pornolar) | Erotik foto galeri | 
 | [Video Pornolar](https://turkpornovideolari.com/video-pornolar) | Güncel porno videoları | 
 | [Porno, Türk Porno,Sex Hikayeleri, İfşa, Türk İfşa) | Güncel porno videoları | 
